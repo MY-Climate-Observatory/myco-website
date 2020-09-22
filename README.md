@@ -1,6 +1,6 @@
 # The Website of MYCO
 
-In Progress.
+In Progress. And looking for webhosting sponsorship~ 
 
 
 
